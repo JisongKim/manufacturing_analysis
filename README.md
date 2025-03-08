@@ -1,1 +1,0 @@
-# menufacturing_analysis
